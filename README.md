@@ -10,4 +10,4 @@
 - Jacelin Gomez
 
 ## Youtube Links
-- Group Video - 
+- Group Video - https://youtu.be/UE9_YtPPRKg
